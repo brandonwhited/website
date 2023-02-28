@@ -7,3 +7,10 @@ I got tired of typing what he was saying and so this is all you get.
 Fuck off. 
 
 Show a change
+
+Idea: Tidal Force VR
+A way for adults to meet(like dodgeball)
+
+A way for young adults to meet... a youth club of some sort??? A third place...
+
+        
